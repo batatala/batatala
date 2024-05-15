@@ -1,0 +1,6 @@
+- 👋 ola, eu sou batatala
+- ola amigos
+- 👀 bem vindo ao meu git hub
+- 🌱 *sweet*
+- 💢
+- <img src = "https://br.pinterest.com/pin/498070040031605673/">
